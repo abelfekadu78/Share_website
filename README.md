@@ -1,8 +1,7 @@
 # Share_website
 Welcome to the Share_website wiki!
 
-Share_
-
+Share
 
 Introduction:
 
