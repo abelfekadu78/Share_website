@@ -3,6 +3,7 @@ Welcome to the Share_website wiki!
 
 Share_
 
+
 Introduction:
 
 The main purpose of education is to strengthen your mind so that you can more easily learn to deal with specific challenges you will face throughout your life. In order to succeed in academical education, it's important for students to have a firm grasp of each subject. There are many ways to do that.
